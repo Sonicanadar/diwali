@@ -1,0 +1,2 @@
+# diwali
+DIWALI_CRACKERS_OFFERS
